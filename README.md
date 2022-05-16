@@ -10,6 +10,9 @@
 [![LinkedIn](https://img.shields.io/badge/-LINKEDIN-0077B5?style=flat-square&logo=linkedin&logoColor=ffffff)](https://www.linkedin.com/in/mostafa-abbas98/)
 
 
+[Show CV](https://drive.google.com/file/d/1wtGTe2D325YkdUcW9yYIf17ALiZPg910/view?usp=sharing)
+
+
 
 ### Languages and Tools:
 
